@@ -90,7 +90,7 @@ It's likely that the overhunting of certain animals, particularly large ruminant
 
 Thus, the decline in available large ruminants and the environmental changes after the Ice Age likely drove early human societies to adopt farming as a key strategy for survival.
 
-### Wouldn't you agree that early humans and their ancestors would not have had their cecum atrophy to an appendix if they were subsisting, to any degree, on plants? It seems reasonable to rationalize the atrophy of a cecum to an appendix over hundreds of thousands of years what have been due to very few plants being consumed.
+### Wouldn't you agree that early humans and their ancestors would not have had their cecum atrophy to an appendix if they were subsisting, to any degree, on plants? It seems reasonable to rationalize the atrophy of a cecum to an appendix over hundreds of thousands of years would have been due to very few plants being consumed.
 
 It’s a reasonable hypothesis that the atrophy of the human cecum into the appendix could be linked to the reduced reliance on plant-based foods, especially those rich in cellulose, over evolutionary time. However, the evolution of the appendix is a bit more complex, and multiple factors contribute to its reduction in size and function in humans. Let’s explore this in detail:
 
